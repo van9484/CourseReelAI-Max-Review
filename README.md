@@ -47,43 +47,47 @@
 <!-- /wp:paragraph -->
 
 <!-- wp:paragraph -->
-<p><strong><strong>CourseReelAI Max</strong> FE: <strong>CourseReelAI Max Premium</strong></strong><br><strong><a href="https://tmm-reviews.com/CRM-Join" target="_blank" rel="noreferrer noopener"><mark style="background-color:rgba(0, 0, 0, 0)" class="has-inline-color has-vivid-cyan-blue-color">&gt;&gt;&gt;Grab Your Early Bird Discount</mark></a></strong></p>
+<p><strong>CourseReelAI MAX Bundle Deal&nbsp;(Save <mark style="background-color:rgba(0, 0, 0, 0)" class="has-inline-color has-luminous-vivid-orange-color">$132</mark>)</strong><br><strong>Get&nbsp;CourseReel AI MAX Commercial + ALL Upgrades&nbsp;For A Low, One-Time Payment (SAVE <mark style="background-color:rgba(0, 0, 0, 0)" class="has-inline-color has-luminous-vivid-orange-color">$132</mark>) + Use Coupon Code&nbsp;<a href="https://tmm-reviews.com/CRM-Bundle" target="_blank" rel="noreferrer noopener"><mark style="background-color:rgba(0, 0, 0, 0)" class="has-inline-color has-vivid-cyan-blue-color">“coursebundle”</mark></a>&nbsp;for <mark style="background-color:rgba(0, 0, 0, 0)" class="has-inline-color has-luminous-vivid-orange-color">$50</mark> OFF</strong><br><strong><a href="https://tmm-reviews.com/CRM-Bundle" target="_blank" rel="noreferrer noopener"><mark style="background-color:rgba(0, 0, 0, 0)" class="has-inline-color has-vivid-cyan-blue-color">&gt;&gt;&gt;Grab Your Early Bird Discount</mark></a></strong></p>
 <!-- /wp:paragraph -->
 
 <!-- wp:paragraph -->
-<p><strong><strong>Special Offer 01: CourseReelAI MAX Fast-Pass Bundle ($230)</strong></strong><br><strong><a href="https://tmm-reviews.com/CRM-FastPass" target="_blank" rel="noreferrer noopener"><mark style="background-color:rgba(0, 0, 0, 0)" class="has-inline-color has-vivid-cyan-blue-color">&gt;&gt;&gt;Grab Your Early Bird Discount</mark></a></strong></p>
+<p><strong>CourseReelAI MAX FE: CourseReel AI MAX Premium – Use Discount Coupon&nbsp;<a href="https://tmm-reviews.com/CRM-Join" target="_blank" rel="noreferrer noopener"><mark style="background-color:rgba(0, 0, 0, 0)" class="has-inline-color has-vivid-cyan-blue-color">“coursehacker”</mark></a></strong><br><strong><a href="https://tmm-reviews.com/CRM-Join" target="_blank" rel="noreferrer noopener"><mark style="background-color:rgba(0, 0, 0, 0)" class="has-inline-color has-vivid-cyan-blue-color">&gt;&gt;&gt;Grab Your Early Bird Discount</mark></a></strong></p>
 <!-- /wp:paragraph -->
 
 <!-- wp:paragraph -->
-<p><strong><strong>Special Offer 02: CourseReelAI MAX MegaPass ($70)</strong></strong><br><strong><a href="https://tmm-reviews.com/CRM-MegaPass" target="_blank" rel="noreferrer noopener"><mark style="background-color:rgba(0, 0, 0, 0)" class="has-inline-color has-vivid-cyan-blue-color">&gt;&gt;&gt;Grab Your Early Bird Discount</mark></a></strong></p>
+<p><strong>CourseReelAI MAX FastPass&nbsp;(Save <mark style="background-color:rgba(0, 0, 0, 0)" class="has-inline-color has-luminous-vivid-orange-color">$132</mark>):&nbsp;Get&nbsp;ALL CourseReel AI MAX Upgrades&nbsp;For A Low, One-Time Payment (SAVE <mark style="background-color:rgba(0, 0, 0, 0)" class="has-inline-color has-luminous-vivid-orange-color">$132</mark>)</strong><br><strong><a href="https://tmm-reviews.com/CRM-FastPass" target="_blank" rel="noreferrer noopener"><mark style="background-color:rgba(0, 0, 0, 0)" class="has-inline-color has-vivid-cyan-blue-color">&gt;&gt;&gt;Grab Your Early Bird Discount</mark></a></strong></p>
 <!-- /wp:paragraph -->
 
 <!-- wp:paragraph -->
-<p><strong><strong>CourseReelAI Max</strong> OTO 1: CourseReel AI Unlimited</strong><br><strong><a href="https://jvz2.com/c/2546645/386150/?tid=LI" target="_blank" rel="noreferrer noopener"><mark style="background-color:rgba(0, 0, 0, 0)" class="has-inline-color has-vivid-cyan-blue-color">&gt;&gt;&gt;Grab Your Early Bird Discount</mark></a></strong></p>
+<p><strong>CourseReelAI MAX OTO 1: CourseReel AI MAX Unlimited</strong><br><strong><a href="https://tmm-reviews.com/CRM-OTO1" target="_blank" rel="noreferrer noopener"><mark style="background-color:rgba(0, 0, 0, 0)" class="has-inline-color has-vivid-cyan-blue-color">&gt;&gt;&gt;Grab Your Early Bird Discount</mark></a></strong></p>
 <!-- /wp:paragraph -->
 
 <!-- wp:paragraph -->
-<p><strong><strong>CourseReelAI Max</strong> OTO 2: CourseReel AI Professional</strong><br><strong><a href="https://jvz4.com/c/2546645/386154/?tid=4U" target="_blank" rel="noreferrer noopener"><mark style="background-color:rgba(0, 0, 0, 0)" class="has-inline-color has-vivid-cyan-blue-color">&gt;&gt;&gt;Grab Your Early Bird Discount</mark></a></strong></p>
+<p><strong>CourseReelAI MAX OTO 2: CourseReel AI MAX Professional</strong><br><strong><a href="https://tmm-reviews.com/CRM-OTO2" target="_blank" rel="noreferrer noopener"><mark style="background-color:rgba(0, 0, 0, 0)" class="has-inline-color has-vivid-cyan-blue-color">&gt;&gt;&gt;Grab Your Early Bird Discount</mark></a></strong></p>
 <!-- /wp:paragraph -->
 
 <!-- wp:paragraph -->
-<p><strong><strong>CourseReelAI Max</strong> OTO 3: CourseReel AI DFY</strong><br><strong><a href="https://jvz8.com/c/2546645/386158/?tid=4U" target="_blank" rel="noreferrer noopener"><mark style="background-color:rgba(0, 0, 0, 0)" class="has-inline-color has-vivid-cyan-blue-color">&gt;&gt;&gt;Grab Your Early Bird Discount</mark></a></strong></p>
+<p><strong>CourseReelAI MAX OTO 3: CourseReel AI MAX DFY</strong><br><strong><a href="https://tmm-reviews.com/CRM-OTO3" target="_blank" rel="noreferrer noopener"><mark style="background-color:rgba(0, 0, 0, 0)" class="has-inline-color has-vivid-cyan-blue-color">&gt;&gt;&gt;Grab Your Early Bird Discount</mark></a></strong></p>
 <!-- /wp:paragraph -->
 
 <!-- wp:paragraph -->
-<p><strong><strong>CourseReelAI Max</strong> OTO 4: CourseReelAI-MAX Business</strong><br><strong><a href="https://tmm-reviews.com/CRM-OTO4" target="_blank" rel="noreferrer noopener"><mark style="background-color:rgba(0, 0, 0, 0)" class="has-inline-color has-vivid-cyan-blue-color">&gt;&gt;&gt;Grab Your Early Bird Discount</mark></a></strong></p>
+<p><strong>CourseReelAI MAX OTO 4: CourseReel AI MAX Business</strong><br><strong><a href="https://tmm-reviews.com/CRM-OTO4" target="_blank" rel="noreferrer noopener"><mark style="background-color:rgba(0, 0, 0, 0)" class="has-inline-color has-vivid-cyan-blue-color">&gt;&gt;&gt;Grab Your Early Bird Discount</mark></a></strong></p>
 <!-- /wp:paragraph -->
 
 <!-- wp:paragraph -->
-<p><strong><strong>CourseReelAI Max</strong> OTO 5: PlayerNeo Professional</strong><br><strong><a href="https://jvz2.com/c/2546645/386164/?tid=4U" target="_blank" rel="noreferrer noopener"><mark style="background-color:rgba(0, 0, 0, 0)" class="has-inline-color has-vivid-cyan-blue-color">&gt;&gt;&gt;Grab Your Early Bird Discount</mark></a></strong></p>
+<p><strong>CourseReelAI MAX OTO 5: PlayerNeo Professional</strong><br><strong><a href="https://tmm-reviews.com/CRM-OTO5" target="_blank" rel="noreferrer noopener"><mark style="background-color:rgba(0, 0, 0, 0)" class="has-inline-color has-vivid-cyan-blue-color">&gt;&gt;&gt;Grab Your Early Bird Discount</mark></a></strong></p>
 <!-- /wp:paragraph -->
 
 <!-- wp:paragraph -->
-<p><strong><strong>CourseReelAI Max</strong> OTO 6: KoinCart</strong><br><strong><a href="https://jvz2.com/c/2546645/386162/?tid=4U" target="_blank" rel="noreferrer noopener"><mark style="background-color:rgba(0, 0, 0, 0)" class="has-inline-color has-vivid-cyan-blue-color">&gt;&gt;&gt;Grab Your Early Bird Discount</mark></a></strong></p>
+<p><strong>CourseReelAI MAX OTO 6: KoinCart</strong><br><strong><a href="https://tmm-reviews.com/CRM-OTO6" target="_blank" rel="noreferrer noopener"><mark style="background-color:rgba(0, 0, 0, 0)" class="has-inline-color has-vivid-cyan-blue-color">&gt;&gt;&gt;Grab Your Early Bird Discount</mark></a></strong></p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p><strong><a href="https://tmm-reviews.com/coursereelai-max/" target="_blank" rel="noreferrer noopener"><mark style="background-color:rgba(0, 0, 0, 0)" class="has-inline-color has-vivid-cyan-blue-color">✅️ ➡CourseReel AI Max Review &amp; Walkthrough – Create Courses &amp; more with AI</mark></a></strong></p>
 <!-- /wp:paragraph -->
 
 <!-- wp:heading -->
-<h2 class="wp-block-heading"><strong>CourseReelAI MAX Review - The summary</strong></h2>
+<h2 class="wp-block-heading"><strong>CourseReelAI MAX Review -&nbsp;The summary</strong></h2>
 <!-- /wp:heading -->
 
 <!-- wp:table -->
@@ -522,9 +526,11 @@
 <h3 class="wp-block-heading">The front-end (FE) offer</h3>
 <!-- /wp:heading -->
 
-<!-- wp:paragraph -->
-<p><strong><a href="https://tmm-reviews.com/CRM-Join" target="_blank" rel="noreferrer noopener"><mark style="background-color:rgba(0, 0, 0, 0)" class="has-inline-color has-vivid-cyan-blue-color">>>Click here to access the salespage</mark></a></strong></p>
-<!-- /wp:paragraph -->
+<!-- wp:quote -->
+<blockquote class="wp-block-quote"><!-- wp:paragraph -->
+<p><strong><a href="https://tmm-reviews.com/CRM-Join" target="_blank" rel="noreferrer noopener"><mark style="background-color:rgba(0, 0, 0, 0)" class="has-inline-color has-vivid-cyan-blue-color">&gt;&gt;Click here to access the salespage</mark></a></strong></p>
+<!-- /wp:paragraph --></blockquote>
+<!-- /wp:quote -->
 
 <!-- wp:paragraph -->
 <p><strong><em>Let me recap what you will get inside</em></strong></p>
@@ -736,8 +742,8 @@
 <!-- /wp:list-item --></ul>
 <!-- /wp:list -->
 
-<!-- wp:heading {"level":4} -->
-<h4 class="wp-block-heading"><strong>Special Offer 02:&nbsp;CourseReelAI MAX MegaPass ($70)</strong></h4>
+<!-- wp:heading {"level":3} -->
+<h3 class="wp-block-heading">Special Offer 02:&nbsp;CourseReelAI MAX MegaPass ($70)</h3>
 <!-- /wp:heading -->
 
 <!-- wp:quote -->
@@ -756,7 +762,7 @@
 
 <!-- wp:quote -->
 <blockquote class="wp-block-quote"><!-- wp:paragraph -->
-<p><strong><a href="https://jvz2.com/c/2546645/386150/?tid=LI" target="_blank" rel="noreferrer noopener"><mark style="background-color:rgba(0, 0, 0, 0)" class="has-inline-color has-vivid-cyan-blue-color">&gt;&gt;Click here to access the salespage</mark></a></strong></p>
+<p><strong><a href="https://tmm-reviews.com/CRM-OTO1" target="_blank" rel="noreferrer noopener"><mark style="background-color:rgba(0, 0, 0, 0)" class="has-inline-color has-vivid-cyan-blue-color">>>Click here to access the salespage</mark></a></strong></p>
 <!-- /wp:paragraph --></blockquote>
 <!-- /wp:quote -->
 
@@ -842,7 +848,7 @@
 
 <!-- wp:quote -->
 <blockquote class="wp-block-quote"><!-- wp:paragraph -->
-<p><strong><a href="https://jvz4.com/c/2546645/386154/?tid=4U" target="_blank" rel="noreferrer noopener"><mark style="background-color:rgba(0, 0, 0, 0)" class="has-inline-color has-vivid-cyan-blue-color">&gt;&gt;Click here to access the salespage</mark></a></strong></p>
+<p><strong><a href="https://tmm-reviews.com/CRM-OTO2" target="_blank" rel="noreferrer noopener"><mark style="background-color:rgba(0, 0, 0, 0)" class="has-inline-color has-vivid-cyan-blue-color">>>Click here to access the salespage</mark></a></strong></p>
 <!-- /wp:paragraph --></blockquote>
 <!-- /wp:quote -->
 
@@ -940,7 +946,7 @@
 
 <!-- wp:quote -->
 <blockquote class="wp-block-quote"><!-- wp:paragraph -->
-<p><strong><a href="https://jvz8.com/c/2546645/386158/?tid=4U" target="_blank" rel="noreferrer noopener"><mark style="background-color:rgba(0, 0, 0, 0)" class="has-inline-color has-vivid-cyan-blue-color">&gt;&gt;Click here to access the salespage</mark></a></strong></p>
+<p><strong><a href="https://tmm-reviews.com/CRM-OTO3" target="_blank" rel="noreferrer noopener"><mark style="background-color:rgba(0, 0, 0, 0)" class="has-inline-color has-vivid-cyan-blue-color">>>Click here to access the salespage</mark></a></strong></p>
 <!-- /wp:paragraph --></blockquote>
 <!-- /wp:quote -->
 
@@ -1102,7 +1108,7 @@
 
 <!-- wp:quote -->
 <blockquote class="wp-block-quote"><!-- wp:paragraph -->
-<p><strong><a href="https://jvz2.com/c/2546645/386164/?tid=4U" target="_blank" rel="noreferrer noopener"><mark style="background-color:rgba(0, 0, 0, 0)" class="has-inline-color has-vivid-cyan-blue-color">&gt;&gt;Click here to access the salespage</mark></a></strong></p>
+<p><strong><a href="https://tmm-reviews.com/CRM-OTO5" target="_blank" rel="noreferrer noopener"><mark style="background-color:rgba(0, 0, 0, 0)" class="has-inline-color has-vivid-cyan-blue-color">>>Click here to access the salespage</mark></a></strong></p>
 <!-- /wp:paragraph --></blockquote>
 <!-- /wp:quote -->
 
@@ -1198,7 +1204,7 @@
 
 <!-- wp:quote -->
 <blockquote class="wp-block-quote"><!-- wp:paragraph -->
-<p><strong><a href="https://jvz2.com/c/2546645/386162/?tid=4U" target="_blank" rel="noreferrer noopener"><mark style="background-color:rgba(0, 0, 0, 0)" class="has-inline-color has-vivid-cyan-blue-color">&gt;&gt;Click here to access the salespage</mark></a></strong></p>
+<p><strong><a href="https://tmm-reviews.com/CRM-OTO6" target="_blank" rel="noreferrer noopener"><mark style="background-color:rgba(0, 0, 0, 0)" class="has-inline-color has-vivid-cyan-blue-color">>>Click here to access the salespage</mark></a></strong></p>
 <!-- /wp:paragraph --></blockquote>
 <!-- /wp:quote -->
 
@@ -1269,7 +1275,7 @@
 <!-- /wp:list -->
 
 <!-- wp:heading -->
-<h2 class="wp-block-heading"><strong>CourseReelAI Max</strong>&nbsp;<strong>Review: My Bonuses</strong></h2>
+<h2 class="wp-block-heading"><strong>CourseReelAI Max&nbsp;Review: My Bonuses</strong></h2>
 <!-- /wp:heading -->
 
 <!-- wp:paragraph -->
@@ -1289,7 +1295,7 @@
 <!-- /wp:paragraph -->
 
 <!-- wp:heading -->
-<h2 class="wp-block-heading" id="who-is-vidmingo-intended-for"><strong>Who Is It Intended For?</strong></h2>
+<h2 class="wp-block-heading" id="who-is-vidmingo-intended-for"><strong>Who Is&nbsp;It Intended For?</strong></h2>
 <!-- /wp:heading -->
 
 <!-- wp:paragraph -->
